@@ -1,1 +1,1 @@
-Wainting for wikipedia to make my page
+Waiting for wikipedia to make my page
